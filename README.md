@@ -1,2 +1,2 @@
-[![sistemas-operativos.jpg](https://i.postimg.cc/s2S7DQ7w/sistemas-operativos.jpg)](https://postimg.cc/yJ1kLNfZ)
+[![Screenshot-123.png](https://i.postimg.cc/m2YrDY5c/Screenshot-123.png)](https://postimg.cc/dL0FNyvv)
  # WichSystem
